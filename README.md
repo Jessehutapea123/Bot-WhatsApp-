@@ -1,2 +1,0 @@
-# Bot-WhatsApp-
-For Free
